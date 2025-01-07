@@ -1,4 +1,4 @@
-![divider1](https://media.discordapp.net/attachments/974360137374531655/1326271000878387313/Untitled229_20250107202510.png?ex=677ed19f&is=677d801f&hm=d4b7eb2f34eb5c18d8aadfd698781fac9582875c6087a691f65e7395f1758061&=&format=webp&quality=lossless&width=671&height=671)
+![divider1](https://files.catbox.moe/ufoekf.png)
 
 **▸ HAHAHA! ʾ ʾ** ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**COME ON﹐ SUCK IT UP!！ ʾ ʾ ◞**
